@@ -2,13 +2,8 @@
 
 
 
-## I'm a Husband, Father, and a Student!!
+## I'm a Husband, Father
 
-- 🔭 I just finished my first course at CodeCool Romania!
-- 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to collaborate with other sofware developers
-- 🥅 2021 Goals: Contribute more to Open Source projects
-- ⚡ Fun fact: I love to draw and workout
 
 
 
