@@ -1,15 +1,3 @@
-### Hi there, I'm Stefan 👋
-
-
-
-## I'm a Husband, Father
-
-
-
-
-
-
-<br />
 
 ### Languages and Tools:
 
